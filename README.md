@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tysonic711
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning how to code
+- 😄 my Pronouns are: he/him
+- ⚡ Fun fact: I'm weird
